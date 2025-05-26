@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **samuelchristophervisarra@gmail.com**
 
-- ⚡ Fun fact **I know how to farm**
+- ⚡ Fun fact **I know how to kitesurf**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
